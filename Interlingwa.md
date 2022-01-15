@@ -6,3 +6,16 @@ pomocniczy. Według specjalistów można opanować go w zaledwie 15 dni. Interli
 International Auxiliary Language Association (Międzynarodowe Stowarzyszenie Języka Pomocniczego). Ich dzieło światło dzienne ujrzało dokładnie 15 stycznia 1951
 roku wraz z opublikowaniem słownika Interlingua-English Dictionary. Stąd Światowy Dzień Interlingwy obchodzimy właśnie w tym dniu. Jego celem jest zachęcanie do
 nauki oraz promowanie Interlingwy, choćby poprzez pryzmat dbania o światowe dziedzictwo językowe.".
+
+Korzyści z przyswojenia interlingwy
+"Poniżej przedstawiamy najważniejsze korzyści z przyswojenia Interlingwy:
+
+- Zyskujemy skuteczne narzędzie międzynarodowej komunikacji językowej z obywatelami Francji, Hiszpanii czy Włoch. Zarówno w kontaktach „face to face”, jak i w czytaniu stron internetowych czy czasopism.
+
+- Znacznie łatwiej będzie nam się nauczyć wybranego języka, np. włoskiego, hiszpańskiego, francuskiego czy angielskiego.
+
+- Interlingwa pozwala poznać klasyczne korzenie języka polskiego, zarówno jego pochodzenie, słownictwo jak i zaskakujące związki między wyrazami.
+
+- Niewielki wkład pracy w poznanie Interlingwy jest inwestycją we własne wykształcenie i poziom kultury.
+
+Światowy Dzień Interlingwy jest najlepszą okazją do tego, by zainwestować w swój rozwój osobisty. Przecież możemy się uczyć podczas jazdy pociągiem czy czekając w kolejce do lekarza. Korzyści z pewnością są tego warte.". 
